@@ -1,0 +1,76 @@
+# new F7avors – Popcorn
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Hey!
+味気ない毎日じゃダメ Pump it up
+(Oh Uh)
+遠慮なんて いらないよ
+そうでしょ？ We go
+始まる Fantasy
+ふくらむ Popcorn
+雲を突き抜けて
+降り注ぐ声も跳ね返して
+Make it Pop Pop Pop(Pop Pop Pop)
+まだ小さなこの種（遠くへ）
+いつの日か飛び跳ねるよ
+好きなその気持ちだけ（Nonstop）
+高めたら OK（もう）
+走り出そう
+We just wanna make your smile
+まるで魔法みたいに
+弾けて
+Pop Pop Pop Pop Pop Pop Popcorn
+(Poppin'Poppin')
+心踊り出す方へ We just groove it
+いろんなFlavor足していく夢は
+きっと誰も予想不可能にWe fly
+舞い上がれGet to the top
+気分上げる時はポップコーン
+Popsong 任せて Hot Shot
+君と花咲かせるよ Pop talk
+空の向こうに願いを Goin'Pop
+いつも笑顔 Poppin'涙 Stoppin'
+揺れる想い混ぜ合わせて
+Ya自分好みで Made my day
+踏み出して New world
+(More and More)
+想像超えていくこの種（遠くへ）
+どこまでも飛び跳ねるよ
+風が追い越す日まで（Nonstop）
+音のなる方へ（もう）
+走り出そう
+We just wanna make you smile
+まるで魔法みたいに
+弾けて
+Pop Pop Pop Pop Pop Pop Popcorn
+(Poppin'Poppin')
+心踊り出す方へ We just groove it
+新しい Flavor溢れ出す夢は
+もっとみんな好奇心旺盛に We try
+舞い上がれ Get to the top
+熱いこの想いはLike a Pop Popcorn
+(Like a Popcorn)
+めぐりめぐる季節超えて 叶うよ
+Someday(Someday)
+探してた My dream どんな色
+君に見せてあげる
+Hey
+Hey
+弾けて
+Pop Pop Pop Pop Pop Pop Popcorn
+(Poppin'Poppin')
+心踊り出す方へWe just groove it
+いろんな Flavor足していく夢は
+きっと誰も予想不可能にWe fly
+舞い上がれ Get to the top
+(Oh Uh Uh)
+Pop Pop Pop Pop Popcorn
+(Oh Uh Uh)
+高鳴ってハズむ My heart
+(Oh Uh Uh)
+Pop Pop Pop Pop Popcorn
+動き出す未来を
+I wanna make it Pop
+```
